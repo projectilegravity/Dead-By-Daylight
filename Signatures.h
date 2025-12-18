@@ -1,3 +1,5 @@
+hi, if you are looking at this but im sorry half of signatures are dead. Im too lazy to update them! Contact me on discord and maybe i will help you (nohello.net)
+
  DISCORD: projectilegravity and luainterpreter
  DISCORD: projectilegravity and luainterpreter
  DISCORD: projectilegravity and luainterpreter
